@@ -1,0 +1,2 @@
+# premium-indigo-dye-001-indigo-dye-vat-shibori-fold
+Stop losing your indigo notes in splattered notebooks and scattered photos. This Notion template turns your dye vat into a controlled, repeatable studio, so you can focus on the art, not the chaos.  Indigo dyeing is as much science as art—but tracking vat health, fold patterns, and project timelines shouldn't be a mess. This template gives you a ce
